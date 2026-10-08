@@ -36,8 +36,7 @@ ${\textsf{\color{#A1AF74}　　d.i.d.　　system }}$
 
 <div align="center">
 
-<a href="https://rentry.co/herewegofolks"><img src="https://64.media.tumblr.com/a0a7004579d3e47def0a3e123c1f1a05/f90cb87f559a38af-59/s250x400/9a7486d4b6393b706b28fea4488230479b19ec2c.pnj"></a>
-<a href="https://sleeping.atabook.org/"><img src="https://64.media.tumblr.com/a993d4ccc944ab59687bb8ae45c6fbab/f90cb87f559a38af-b9/s250x400/9d9a7c7629207a7299564b12d1933062f2c1f329.pnj"></a>
+<a href="https://rentry.co/herewegofolks"><img src="https://64.media.tumblr.com/a0a7004579d3e47def0a3e123c1f1a05/f90cb87f559a38af-59/s250x400/9a7486d4b6393b706b28fea4488230479b19ec2c.pnj"></a> <a href="https://sleeping.atabook.org/"><img src="https://64.media.tumblr.com/a993d4ccc944ab59687bb8ae45c6fbab/f90cb87f559a38af-b9/s250x400/9d9a7c7629207a7299564b12d1933062f2c1f329.pnj"></a>
 
 </div>
 
