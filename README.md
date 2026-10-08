@@ -4,15 +4,15 @@
 
 <div align="center">
 
-${\textsf{\color{#C5FFF6} jax or don }}$
+${\textsf{\color{#C5FFF6} jax　　or　　don }}$
 
 <br>
 
-${\textsf{\color{#816937} isfp 9w8 so/sp 947 }}$
+${\textsf{\color{#816937} isfp　　9w8　　so/sp　　947 }}$
 
 <br>
 
-${\textsf{\color{#A1AF74} d.i.d. system }}$
+${\textsf{\color{#A1AF74}　　d.i.d.　　system }}$
 
 </div>
 
