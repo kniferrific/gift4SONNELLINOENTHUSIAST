@@ -1,18 +1,18 @@
-![](https://64.media.tumblr.com/b5181476085d8a9f155722027786397d/f90cb87f559a38af-77/s1280x1920/e63f4a0949184a4fa72249b4deed81839a101659.pnj)
-![](https://64.media.tumblr.com/b2aa8f040da220c8bc69a47e3a7aab57/f90cb87f559a38af-18/s2048x3072/de39e0cee73e25aa3df74ac0a40268b5a9ca4203.pnj)
+![](https://64.media.tumblr.com/b24d79250411e0ae7ff1384ce77c565a/15d459d548f659ab-20/s540x810/1c312fdb12019dfc21d6b536737baa7d699edad9.pnj)
+![](https://64.media.tumblr.com/958dee3075d103161ad24d2b097fca77/15d459d548f659ab-8c/s540x810/221f0a264fbdedb43064cf298c8796f9a5f5212a.pnj)
 
 
 <div align="center">
 
-${\textsf{\color{#C5FFF6} jax　　or　　don }}$
+${\textsf{\color{#FFB46D} jax　　or　　don }}$
 
 <br>
 
-${\textsf{\color{#816937} isfp　　9w8　　so/sp　　947 }}$
+${\textsf{\color{#523951} isfp　　9w8　　so/sp　　947 }}$
 
 <br>
 
-${\textsf{\color{#A1AF74}　　d.i.d.　　system }}$
+${\textsf{\color{#614751}　　d.i.d.　　system }}$
 
 </div>
 
@@ -36,18 +36,18 @@ ${\textsf{\color{#A1AF74}　　d.i.d.　　system }}$
 
 <div align="center">
 
-<a href="https://rentry.co/herewegofolks"><img src="https://64.media.tumblr.com/a0a7004579d3e47def0a3e123c1f1a05/f90cb87f559a38af-59/s250x400/9a7486d4b6393b706b28fea4488230479b19ec2c.pnj"></a> <a href="https://sleeping.atabook.org/"><img src="https://64.media.tumblr.com/a993d4ccc944ab59687bb8ae45c6fbab/f90cb87f559a38af-b9/s250x400/9d9a7c7629207a7299564b12d1933062f2c1f329.pnj"></a>
+<a href="https://rentry.co/herewegofolks"><img src="https://64.media.tumblr.com/4531b8e26816089f16b8a545d9a10df2/15d459d548f659ab-cb/s250x400/9aaa98e3acfa26f0aa932685dd19b9fd7ab55afc.pnj"></a> <a href="https://sleeping.atabook.org/"><img src="https://64.media.tumblr.com/61521bc76276784110e0e00933b35ce9/15d459d548f659ab-72/s250x400/b9af4815032ffb781a2903d993d45b542f8d0b7b.pnj"></a>
 
 </div>
 
 
-![](https://64.media.tumblr.com/56eb1cadbbdd2d5470049e387c18084d/f90cb87f559a38af-23/s2048x3072/0a3f0b29fc2b73af317163773e82bf3b05715841.pnj)
+![](https://64.media.tumblr.com/0f2315daa92bc66809beb999c0ee66e2/15d459d548f659ab-00/s540x810/7a60bc41817c4e08fc30e88c7882e5fd84a77f92.pnj)
 
 
 <div align="center">
 
 layout made by the cool and awesome <a href="https://github.com/kniferrific">kniferrific</a> !!!
 
-![](https://64.media.tumblr.com/728e61eb58f8d0dc774ec24e34001f7d/f90cb87f559a38af-1c/s1280x1920/dedbc761a40daddb95e609dc25bd2d4c2a94dab5.pnj)
+![](https://64.media.tumblr.com/c6e76a1a1b0f2ea3d9cd827a2cc8cbf3/15d459d548f659ab-df/s540x810/6350289406fafff4e2207af0f2d40916003161dc.pnj)
 
 </div>
